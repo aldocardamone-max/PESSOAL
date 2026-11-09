@@ -1,0 +1,2 @@
+# PESSOAL
+Uso para ideias
